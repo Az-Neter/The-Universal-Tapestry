@@ -48,7 +48,15 @@ TWEWY incorporates many different occult concepts and practices into its gamepla
 
 • Mythology: TWEWY draws on a variety of mythological and occult traditions, including Japanese folklore, Gnosticism, and Hermeticism. The game's setting, Shibuya, is a symbolic representation of the modern urban landscape, infused with mystical and esoteric meanings. 
 
-Overall, TWEWY is a game that embraces and celebrates occult concepts and practices, weaving them into a rich and immersive gaming experience. By engaging with these ideas, the game invites players to explore their own spiritual and metaphysical beliefs, and to embark on a journey of personal growth and transformation. 
+In the world of TWEWY, the entry fee is the price that participants in the Reapers' Game must pay to compete. Each player must offer up something of value to enter the game, and failure to pay the entry fee results in erasure - complete destruction of the player's existence. The entry fee can take many forms, such as memories, emotions, or physical possessions, and is often related to the player's deepest desires or fears.
+
+From an occult perspective, the entry fee can be seen as a sacrifice or offering made to the forces at play in the Reapers' Game. By giving up something of value, the player is demonstrating their commitment and willingness to engage with the occult energies of the game. Additionally, the entry fee may represent a symbolic shedding of attachments or limitations that could hinder the player's spiritual growth.
+
+The concept of the entry fee also speaks to the idea of exchange or reciprocity in occult practice. Just as the player must give something up to enter the game, they may receive something of value in return if they are successful. This exchange of energy and power is a common theme in many occult traditions, where it is believed that the universe operates on a system of balance and exchange.
+
+Overall, the entry fee in TWEWY can be seen as a powerful symbol of the sacrifices and offerings that are often necessary for those seeking to engage with the mysteries of the occult.
+
+TWEWY is a game that embraces and celebrates occult concepts and practices, weaving them into a rich and immersive gaming experience. By engaging with these ideas, the game invites players to explore their own spiritual and metaphysical beliefs, and to embark on a journey of personal growth and transformation. 
 
 Neku's story in The World Ends with You is full of occult implications, with many of its key themes and motifs drawing on mystical and metaphysical concepts. Here are some examples of how Neku's story relates to his companions, Shiki, Beat, Rhyme, and Joshua: 
 
