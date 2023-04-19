@@ -165,6 +165,8 @@ Neku Sakuraba starts as a disaffected teenager who finds himself thrust into the
 
 In conclusion, The World Ends With You is a remarkable game that offers players a unique opportunity to explore their own inner landscape and tap into their spiritual potential. Through its themes of self-discovery, personal growth, and magical practice, TWEWY presents a powerful message of empowerment and transformation that is both relevant and accessible to modern players. By delving into the esoteric symbolism and spiritual teachings embedded within the game, we can gain a deeper understanding of our own psyche and the forces that shape our reality. Whether you're a fan of video games or a seeker on the spiritual path, The World Ends With You is an unforgettable journey that offers insights and wisdom to all who dare to play The Reaper's Game." 
 
-The creators of TWEWY, Tetsuya Nomura, Tatsuya Kando, and Gen Kobayashi, have demonstrated an incredible ability to weave together elements of occultism, mythology, and psychology into a cohesive and engaging narrative. Their attention to detail and commitment to exploring complex themes is a testament to their skill as storytellers and game designers. 
+The creators of TWEWY;  
+Tetsuya Nomura, Tatsuya Kando, Tomohiro Hasegawa, Tetsuro Hosokawa, Shinji Hashimoto, Hatao Ogata, Takeshi Arakawa, Hiroyuki Itou, Gen Kobayashi, Sachie Hirano, Takeharu Ishimoto.  
+These Players have demonstrated an incredible ability to weave together elements of occultism, mythology, and psychology into a cohesive and engaging narrative. Their attention to detail and commitment to exploring complex themes is a testament to their skill as storytellers and game designers. 
 
 TWEWY stands alone as a unique and innovative work in the gaming world, and its impact on players, occultists and the industry as a whole will never go understated.
