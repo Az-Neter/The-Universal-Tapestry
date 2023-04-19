@@ -2,7 +2,7 @@
 
 Through its vibrant characters, immersive storyline, and intricate gameplay mechanics, TWEWY invites players to explore the depths of their own psyche and tap into their inner potential. By using themes and symbols from various esoteric traditions, TWEWY teaches players the principles of magick and spiritual growth in a way that is engaging, accessible, and relevant to modern life. 
 
-In this document, we will explore the occult and spiritual implications of TWEWY, analyzing its characters, themes, and gameplay mechanics to reveal the profound teachings hidden within this beloved game." 
+In this document, we will explore the occult and spiritual implications of TWEWY, analyzing its characters, themes, and gameplay mechanics to reveal the profound teachings hidden within this beloved game.
 
 In TWEWY, 'Noise' refers to the main enemies that players must fight and defeat in order to progress through the game. Noise are supernatural creatures that are the product of negative human thoughts and emotions, and they come in a wide variety of shapes and sizes. 
 
@@ -163,7 +163,7 @@ Neku's use of Scanning can be compared to how some occult practitioners may use 
 
 Neku Sakuraba starts as a disaffected teenager who finds himself thrust into the game of life and death seemingly against his will. Over the course of three cycles of seven days, he is forced to partner with various individuals and confront his own inner demons as he learns the importance of connection and empathy. Through his journey, Neku transforms from a closed-off and selfish individual to someone who is willing to put himself on the line for the sake of others, ultimately finding redemption and a renewed sense of purpose. 
 
-In conclusion, The World Ends With You is a remarkable game that offers players a unique opportunity to explore their own inner landscape and tap into their spiritual potential. Through its themes of self-discovery, personal growth, and magical practice, TWEWY presents a powerful message of empowerment and transformation that is both relevant and accessible to modern players. By delving into the esoteric symbolism and spiritual teachings embedded within the game, we can gain a deeper understanding of our own psyche and the forces that shape our reality. Whether you're a fan of video games or a seeker on the spiritual path, The World Ends With You is an unforgettable journey that offers insights and wisdom to all who dare to play The Reaper's Game." 
+In conclusion, The World Ends With You is a remarkable game that offers players a unique opportunity to explore their own inner landscape and tap into their spiritual potential. Through its themes of self-discovery, personal growth, and magical practice, TWEWY presents a powerful message of empowerment and transformation that is both relevant and accessible to modern players. By delving into the esoteric symbolism and spiritual teachings embedded within the game, we can gain a deeper understanding of our own psyche and the forces that shape our reality. Whether you're a fan of video games or a seeker on the spiritual path, The World Ends With You is an unforgettable journey that offers insights and wisdom to all who dare to play The Reaper's Game. 
 
 The creators of TWEWY;  
 Tetsuya Nomura, Tatsuya Kando, Tomohiro Hasegawa, Tetsuro Hosokawa, Shinji Hashimoto, Hatao Ogata, Takeshi Arakawa, Hiroyuki Itou, Gen Kobayashi, Sachie Hirano, Takeharu Ishimoto.  
