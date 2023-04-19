@@ -1,4 +1,4 @@
-The World Ends With You (TWEWY) is more than just a video game; it is a modern masterpiece that contains profound occult and spiritual teachings. 
+[The World Ends With You (TWEWY)](https://en.m.wikipedia.org/wiki/The_World_Ends_with_You) is more than just a video game; it is a modern masterpiece that contains profound occult and spiritual teachings. 
 
 Through its vibrant characters, immersive storyline, and intricate gameplay mechanics, TWEWY invites players to explore the depths of their own psyche and tap into their inner potential. By using themes and symbols from various esoteric traditions, TWEWY teaches players the principles of magick and spiritual growth in a way that is engaging, accessible, and relevant to modern life. 
 
