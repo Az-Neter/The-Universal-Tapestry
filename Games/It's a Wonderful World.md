@@ -10,7 +10,7 @@ In the game's story, Shibuya (the game's setting) is divided into different area
 
 Noise battles take place in real-time, with the player using various touch-screen and motion controls to defeat them. Each type of Noise has its own unique abilities and weaknesses, and players must use strategy and quick reflexes to defeat them. By defeating Noise and collecting pins, players gain experience points and can level up their characters, making them stronger and more able to handle tougher enemies. 
 
-In occult and paranormal lore, the concept that is most similar to the Noise in The World Ends with You is the idea of thought-forms or egregores. 
+In occult and paranormal lore, the concept that is most similar to the Noise in The World Ends with You is the idea of [thought-forms](https://en.m.wikipedia.org/wiki/Tulpa) or [egregores](https://en.m.wikipedia.org/wiki/Egregore). 
 
 Thought-forms are believed to be created by the collective thoughts, emotions, and beliefs of a group of people. These thought-forms can take on a life of their own, becoming independent entities that can affect the individuals who created them, as well as other people who come into contact with them. 
 
