@@ -10,15 +10,15 @@ In the game's story, Shibuya (the game's setting) is divided into different area
 
 Noise battles take place in real-time, with the player using various touch-screen and motion controls to defeat them. Each type of Noise has its own unique abilities and weaknesses, and players must use strategy and quick reflexes to defeat them. By defeating Noise and collecting pins, players gain experience points and can level up their characters, making them stronger and more able to handle tougher enemies. 
 
-In occult and paranormal lore, the concept that is most similar to the Noise in The World Ends with You is the idea of [thought-forms](https://en.m.wikipedia.org/wiki/Tulpa) or [egregores](https://en.m.wikipedia.org/wiki/Egregore). 
+In occult and paranormal lore, the concept that is most similar to the Noise in The World Ends with You is the idea of thoughtforms or egregores. 
 
-Thought-forms are believed to be created by the collective thoughts, emotions, and beliefs of a group of people. These thought-forms can take on a life of their own, becoming independent entities that can affect the individuals who created them, as well as other people who come into contact with them. 
+[Thoughtforms](https://en.m.wikipedia.org/wiki/Tulpa) are believed to be created by the collective thoughts, emotions, and beliefs of a group of people. These forms can take on a life of their own, becoming independent entities that can affect the individuals who created them, as well as other people who come into contact with them. 
 
-Egregores are a similar concept, but they are specifically thought-forms that have been intentionally created and sustained by a group of people for a particular purpose or goal. 
+[Egregores](https://en.m.wikipedia.org/wiki/Egregore) are a similar concept, but they are specifically thought-forms that have been intentionally created and sustained by a group of people for a particular purpose or goal. 
 
-Like the Noise in TWEWY, thought-forms and egregores can be both benevolent and malevolent, depending on the nature of the thoughts and emotions that created them. They can also take on various shapes and forms, depending on the beliefs and cultural context of the group that created them. In some cases, thought-forms and egregores have been said to have a physical presence, causing physical phenomena or manifesting as apparitions or poltergeists. 
+Like the Noise in TWEWY, thoughtforms and egregores can be both benevolent and malevolent, depending on the nature of the thoughts and emotions that created them. They can also take on various shapes and forms, depending on the beliefs and cultural context of the group that created them. In some cases, thoughtforms and egregores have been said to have a physical presence, causing physical phenomena or manifesting as apparitions or poltergeists. 
 
-Overall, the concept of thought-forms or egregores is a fascinating one that has captured the imaginations of occultists, paranormal investigators, and spiritual seekers for many years. 
+Overall, the concept of thoughtforms or egregores is a fascinating one that has captured the imaginations of occultists, paranormal investigators, and spiritual seekers for many years. 
 
 The Reaper's Game, as depicted in The World Ends with You, is a supernatural contest that takes place in the liminal space between the living and the dead. It is presided over by powerful entities known as Reapers, who serve as judges, administrators, and enforcers of the game's rules. 
 
