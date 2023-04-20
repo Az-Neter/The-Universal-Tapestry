@@ -112,7 +112,6 @@ The World Ends with You makes extensive use of symbology and numerology, with ma
 
 Shibuya: The game is set in the Shibuya district of Tokyo, which is known for its fashion, music, and youth culture. From an occult perspective, Shibuya represents the pinnacle of creativity, individuality, and self-expression, which are all important aspects of spiritual growth and development.
 
-
 The tribal designs of the Noise: The tribal designs of the Noise in TWEWY are reminiscent of various indigenous cultures from around the world, including African, Polynesian, and Native American. These designs represent the primal, instinctual aspects of the human psyche, as well as the collective unconscious that exists within all people. They also symbolize the power of the group mind and the primal forces of nature that underlie all human experience. 
 
 • The "Player Pin": The "Player Pin" is a key element of the gameplay mechanics in TWEWY, allowing the player to access various abilities and abilities. In a symbolic sense, the Player Pin represents the power of the mind to shape reality and manifest desires. By wearing the pin, the player is tapping into their own inner potential and using their imagination to affect the world around them. 
@@ -134,6 +133,12 @@ Furthermore, the fact that Neku is forced to repeat the game multiple times can 
 The Reapers' Game can also be seen as a microcosm of the larger cycles and patterns in the universe. The fact that the game repeats itself every seven days can be seen as a reflection of the larger cycles and patterns that occur in nature, such as the cycles of the moon and the seasons. 
 
 Overall, The World Ends with You's use of symbology and numerology adds depth and complexity to the game's themes and characters, highlighting the interconnectedness of spiritual and physical realities. 
+
+One more thing that needs to be mentioned when discussing the occult themes of TWEWY is the concept of "vibes". Vibes are a constant presence in the game and can be seen as a representation of a person's aura or energy. Each character in the game has their own unique vibe, which can affect the world around them and influence the people they encounter.
+
+In occultism, the idea of vibes relates to the belief that everything in the universe is made up of energy, and that this energy can be felt and even manipulated. This is similar to the concept of chi or prana in Eastern spiritual traditions.
+
+The importance of vibes in TWEWY cannot be overstated, as the player is constantly reminded of the power of positive and negative energy throughout the game. In this way, TWEWY can be seen as a lesson in harnessing and controlling one's own energy, and understanding the effect it has on the world around us.
 
 In the original game, the player characters are trapped in a game imposed upon them by the Reapers, who represent forces of spiritual stagnation and resistance to change. The game serves as a means for the player characters to overcome their personal struggles and fears, and ultimately transcend the limitations of their previous selves. 
 
