@@ -56,6 +56,14 @@ The concept of the entry fee also speaks to the idea of exchange or reciprocity 
 
 Overall, the entry fee in TWEWY can be seen as a powerful symbol of the sacrifices and offerings that are often necessary for those seeking to engage with the mysteries of the occult.
 
+In the world of TWEWY, Partners are individuals who have formed a contract with each other to participate in the Reapers' Game together. This partnership creates a bond between the two individuals, allowing them to communicate and share abilities. The concept of partnership in the game has occult implications as it touches on the idea of the duality and balance of the universe. 
+
+The Reapers who partner with their Shadow represent a similar idea. Their Shadow is a manifestation of their inner darkness and negative emotions, and by partnering with it, they are forced to confront and integrate those aspects of themselves. This concept relates to the Jungian idea of the Shadow Self, which is the unconscious part of our psyche that contains our repressed, negative aspects. By facing and integrating this Shadow, we can achieve greater balance and harmony within ourselves. 
+
+The concept of Shut in the soul in Egyptian mythology also refers to a person's shadow, which was believed to be an essential part of their being. The shadow was seen as a representation of a person's soul and was intimately connected to their life force. The shadow was also thought to hold the key to a person's spiritual power and could be harnessed through rituals and magical practices. 
+
+In the context of The World Ends with You, the shadow could be seen as a representation of a person's hidden potential, their true self that is often obscured by societal expectations and conditioning. The reapers who partner with their shadow may be seen as embracing this hidden aspect of themselves, unlocking their full potential and becoming more powerful as a result.
+
 TWEWY is a game that embraces and celebrates occult concepts and practices, weaving them into a rich and immersive gaming experience. By engaging with these ideas, the game invites players to explore their own spiritual and metaphysical beliefs, and to embark on a journey of personal growth and transformation. 
 
 Neku's story in The World Ends with You is full of occult implications, with many of its key themes and motifs drawing on mystical and metaphysical concepts. Here are some examples of how Neku's story relates to his companions, Shiki, Beat, Rhyme, and Joshua: 
